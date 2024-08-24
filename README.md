@@ -1,1 +1,0 @@
-# How-to-Short-Crypto-SAFELY-RESPONSIBLY-Full-Guide
